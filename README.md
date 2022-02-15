@@ -1,2 +1,0 @@
-# Clinicapopularnossom-dico
-Teste site
